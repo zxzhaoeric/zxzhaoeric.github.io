@@ -1,3 +1,2 @@
-Yueming Jin Homepage
-# YuemingJin.github.io
+# Yueming Jin Homepage
 
